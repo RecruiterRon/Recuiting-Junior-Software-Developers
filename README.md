@@ -33,7 +33,7 @@ High personal code/development standards (peer testing, unit testing, documentat
 
 Team spirit and a sense of humour are always great.  
 
-Goal-orientated and deadline-driven.  
+Goal-orientated and deadline-driven...
 
 
 COVID-19 considerations: All employees are currently working from home. Any equipment or materials required for work will be provided by the company via shipment to the employee's home. Company policy will continue to evolve through the COVID-19 pandemic and implement alternative working arrangements to ensure that all our people stay safe.  
